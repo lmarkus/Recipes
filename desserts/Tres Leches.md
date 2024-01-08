@@ -27,7 +27,7 @@
 1/2 teaspoon ground cinnamon
 
 ### Frosting
-[Italian Meringue](./Italian Meringue.md)
+[Italian Meringue](/desserts/Italian%20Meringue.md)
 
 
 ## Directions
