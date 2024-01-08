@@ -1,6 +1,6 @@
 # Italian Meringue 
 
-[Source video] (https://youtu.be/BAye9nrNg6A)
+[Source video](https://youtu.be/BAye9nrNg6A)
 
 ## Ingredients:
 1/4 teaspoon cream of tartar
