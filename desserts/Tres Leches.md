@@ -8,6 +8,8 @@
 
 12g (~1 tablespoon) baking powder
 
+7g (~1 tsp) salt
+
 4 large eggs, separated
 
 300g (~1 1/2 cups) sugar
