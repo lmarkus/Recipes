@@ -4,13 +4,13 @@
 
 ### Sponge
 
-200 gr **cake** flour, plus more for dusting the cake pan
+200g **cake** flour, plus more for dusting the cake pan
 
-1 tablespoon baking powder
+12g (~1 tablespoon) baking powder
 
 4 large eggs, separated
 
-1 1/2 cups sugar
+300g (~1 1/2 cups) sugar
 
 1/2 cup whole milk
 
