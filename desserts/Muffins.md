@@ -1,13 +1,13 @@
 # Muffins
 Ref: [Mixed Berry Muffins](https://natashaskitchen.com/mixed-berry-muffins/)
-Servings: 12 muffins
+Servings: 12 muffins - 239 Calories Each.
 
 * 2 large eggs, room temperature
 * 200g granulated sugar
 * 200g Greek yogurt
 * 108ml olive oil
 * 15g vanilla extract
-* 4g salt
+* 6g salt
 * 250g all-purpose flour
 * 8g baking powder
 
