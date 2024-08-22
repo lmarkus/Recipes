@@ -20,3 +20,7 @@ Servings: 12 muffins - 239 Calories Each.
 4. In a small bowl, add flour, baking powder and salt and whisk to combine. Using a spatula fold flour mixture into the batter 1/3 at a time, stirring to incorporate with each addition. DO NOT OVERMIX or muffins will be dense.
 5. If using berries or other add-ins, add them now. Use a spatula to fold in. (For example 1 1/2 cups mixed berries) folding just until combined.
 6. Divide batter into prepared muffin tip, filling to the top or until all of the batter is used up. Bake in the center of the oven at 400˚F for 20-22 minutes or until tops are golden and a toothpick inserted into the center come out clean. Transfer muffins to a wire rack to cool. Serve warm or at room temperature.
+
+
+
+![image](https://github.com/user-attachments/assets/d82ee6f9-0e35-4124-8717-f8f64fe2abbe)
