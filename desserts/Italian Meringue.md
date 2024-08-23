@@ -3,11 +3,11 @@
 [Source video](https://youtu.be/BAye9nrNg6A)
 
 ## Ingredients:
-1/4 teaspoon cream of tartar
-3 large eggs
-1 cup or 216g (7.62 ounces) caster sugar
-1/4 cup or 63g (2.22 ounces) water
-1 teaspoon vanilla
+* 1/4 teaspoon cream of tartar
+* 3 large eggs
+* 1 cup or 216g (7.62 ounces) caster sugar
+* 1/4 cup or 63g (2.22 ounces) water
+* 1 teaspoon vanilla
 
 ## Directions:
 1. Separate the eggs, add the cream of tar tar and whisk the white to form soft peaks.
