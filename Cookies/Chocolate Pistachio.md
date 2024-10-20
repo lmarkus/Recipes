@@ -32,3 +32,6 @@ Yield: 15 Cookies
 9. Prepare Baking Sheet: Remove the balls from the refrigerator and line a baking sheet with parchment paper. Place 5 to 6 cookie balls onto the prepared sheets, leaving at least 2 inches between each.
 10. Bake Cookies: Bake for 13 to 15 minutes until lightly golden brown. If frozen bake for 16 minutes, but don’t overbake!
 11. Flatten and Cool Cookies: Remove from the oven. Using oven mitts, hold the baking sheet and tap/drop it on the counter firmly a few times to make the cookies a little flatter. Let them cool for 10-20 minutes.
+
+
+![DSC_1916-3](https://github.com/user-attachments/assets/c7a5925e-6727-4729-8b58-eeee21198242)
