@@ -1,5 +1,13 @@
 # Tart Shells
-Yields 2 x 8" Tart Ring Crusts
+Yields 470g of raw dough.
+
+Setting on machine 2.5 (Top) + 0.5 (Bottom), rolled out between two silpats
+| Tart Size | Thickness | Dough Weight Needed |
+|-----------|-----------|---------|
+| 4"        | 2mm       | 65g     |
+| 8"        | 2mm       | 180g    |
+
+
 
 ## Ingredients
 
