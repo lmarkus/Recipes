@@ -7,6 +7,7 @@
 * 400g Bread flour
 * 250g Whole milk
 * 50g Butter, room temp.
+* 1 Egg
 * 90g Sugar
 * 8g + 8g Yeast
 * 7g Salt
