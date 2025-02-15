@@ -4,19 +4,14 @@
 ## Ingredients
 
 ### Cake
-    1 2⁄3 cups all-purpose flour 
-    
-    2⁄3 cup cocoa powder 
-    
-    1 1⁄2 teaspoons baking soda 
-    
-    1 teaspoon salt 1⁄2 cup shortening 
-    
-    1 1⁄2 cups sugar 
-    
-    2 eggs 
-    
-    1 teaspoon vanilla 
+* 200g cups all-purpose flour
+* 55g cup cocoa powder 
+* 9g (1.5 teaspoons) baking soda
+* 100g (1/2 cup) shortening 
+* 6g salt
+* 300g cups sugar
+* 2 eggs
+* 1 teaspoon vanilla 
     
     1 1⁄2 cups buttermilk
 
