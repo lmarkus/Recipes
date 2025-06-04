@@ -3,10 +3,10 @@ https://www.surlatable.com/apple-tart-with-almond-filling/REC-330907.html
 ## Ingredients
 ### Dough:
 
-- 1½ cups all-purpose flour
-- 1½ teaspoons sugar
-- ¼ teaspoon salt
-- 10 tablespoons (1¼ sticks) cold unsalted butter, cut into ½-inch pieces
+- 180 g all-purpose flour
+- 6 g sugar
+- 3 g salt
+- 150 g cold unsalted butter, cut into ½-inch pieces
 - ⅓ cup ice-cold water
 
 
