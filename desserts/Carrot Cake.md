@@ -5,20 +5,21 @@
 ### For the Cake:
 
 * 315 g All-Purpose Flour
-* 2 teaspoons Baking Powder
-* 1 teaspoon Baking Soda
-* 1 teaspoon Salt
+* 8 g (2 teaspoons) Baking Powder
+* 6 g (1 teaspoon) Baking Soda
+* 6 g (1 teaspoon) Salt
 * 50 g White Sugar
 * 160 g Brown Sugar, packed
-* 1 teaspoon Cinnamon
+* 5g (1 teaspoon) Cinnamon
 * 0.25 teaspoon Cloves
 * 0.25 teaspoon Nutmeg
 * 4 large Eggs
+* 20 g molases
 * 180 ml Grape Seed Oil
 * 180 ml Yoghurt (Full fat)
 * 2 teaspoons Vanilla Extract
 * 60 ml Honey (the Chef used Acacia)
-* 75 g Walnuts, chopped
+* 75 g Walnuts, chopped (or 100g cranberries instead of nuts)
 * 75 g Pecans, chopped
 * 450 g Carrots, grated (about 4 large Carrots)
 
