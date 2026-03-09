@@ -5,7 +5,7 @@
 * 480g (2 cups) of whole milk
 * 45g (3) egg yolks
 * 100g Granulated Sugar
-* 35g Cornstarch
+* 40g Cornstarch  (or go up to 50g if it needs to be firmer. Can be 40g cornstarch + 10g flour)
 * 28g Butter
 * 1g salt
 * Vanilla (Either 5g of extract, or one pod)
