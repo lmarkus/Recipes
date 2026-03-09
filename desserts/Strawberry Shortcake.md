@@ -72,5 +72,9 @@ c) Filling
 d) Cake
 e) Strawberry Syrup
 f) Whipped Cream
-g) Sliced Strawberries 
+g) Sliced Strawberries
+h) Optional: Mint Garnish.
+
+<img width="1024" height="559" alt="image" src="https://github.com/user-attachments/assets/83e8961e-d562-4335-9deb-b02ac12b356a" />
+
   
