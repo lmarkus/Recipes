@@ -12,36 +12,24 @@
 * 300g cups sugar
 * 2 eggs
 * 1 teaspoon vanilla 
-    
-    1 1⁄2 cups buttermilk
+* 340g buttermilk
 
     
-### Filling
-    
-    1⁄2 cup kirsch 
-    
-    1⁄2 cup unsalted butter 
-    
-    3 cups icing sugar 
-    
-    1 pinch salt 
-    
-    1⁄4 cup espresso 
-    
-    1 1⁄2 lbs fresh black cherries
+### Buttercream Filling
+* 113g Kirsch (1/2 Cup)
+* 113g Unsalted butter 
+* 340g Powedered sugar 
+* 3g Salt 
+* 60g Espresso / Coffee
+* 680g Fresh black cherries
     
 ### Icing
-    2 cups heavy whipping cream 
-    
-    1⁄2 teaspoon vanilla 
-    
-    1⁄8 cup kirsch 
-    
-    2 tablespoons dry milk 
-    
-    2 tablespoons icing sugar 
-    
-    1⁄2 cup shaved dark chocolate 
+* 460g heavy whipping cream 
+* 15g vanilla
+* 60g kirsch 
+* 15g Powdered Milk
+* 15g tablespoons icing sugar
+* 1⁄2 cup shaved dark chocolate 
 
 ## Directions
 
